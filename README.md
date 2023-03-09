@@ -9,8 +9,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Java in the IT Academy - Cibernarium - Barcelona
 - 👯 I’m looking to collaborate on a project for a better world.
 - 🤔 I’m looking for help with my abilities
-- 💬 Ask me about ... IDK , many things, who knows if later de answer is gonna be true :XD:
+- 💬 Ask me about ... IDK , many things, who knows if later de answer is gonna be true 😀
 - 📫 How to reach me: ATM true this place
 - 😄 Pronouns: whatever you want, I'm on the internet, face to face could be different.
-- ⚡ Fun fact: I don´t know Java XD
+- ⚡ Fun fact: I don´t know Java 😄
 
